@@ -1,4 +1,4 @@
 ---
-layout: default
+layout: post
 title: First Post
 ---
