@@ -42,7 +42,7 @@ It doesn't feel that way to me right now.
 
 Chris Peterson has said that MIT students are extremely intrinsically motivated. That they themselves have the desire and willpower to do great things. MIT is made extremely difficult to fit the needs of these intrinsically motivated students. The rigor is supposed to strengthen student relationships, since it forces them to work together. But for me, this has the opposite effect. When I am physically and mentally exhausted from my psets and exams, I don't have the energy to connect with others. Most of the time, I just lie face-down on my bed, like the lazy ass I am. 
 
-This makes me question if MIT was the right choice. But I'm not sure. If I went to some other university, there is a chance that I will be as lonely, or even lonelier, than I am at MIT.
+This makes me question if MIT was the right choice. But I'm not sure. If I went to some other university, there is a chance that I would be as lonely, or even lonelier, than I am at MIT.
 
 I see this in the anime club. Everyone at club showings looks dead inside. Maybe because anime caters to a specific kind of personality that I fit into. Although I do love anime, this kind of attitude makes me feel like I'm in the wrong group. Later, I might go to more clubs and see if others have a different culture. Even if I'm dead inside, if the people around me aren't, I might become less dead inside.
 
